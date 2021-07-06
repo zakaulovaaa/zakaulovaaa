@@ -1,1 +1,1 @@
-### обо мне тут: http://zakaulovaaa.ru/dasha.pdf
+### cv тут: http://zakaulovaaa.ru/dasha.pdf
