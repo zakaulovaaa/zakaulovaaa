@@ -1,2 +1,2 @@
 ### обо мне тут:
-    zakaulovaaa.ru/dasha.pdf
+    http://zakaulovaaa.ru/dasha.pdf
